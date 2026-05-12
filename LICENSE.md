@@ -1,4 +1,4 @@
-# 
+# top MathType for PC | MathType for Windows Helper | scripting + machine-learning is the best MathType for PC | MathType for Windows helper, featuring scripting and
 
 
 
